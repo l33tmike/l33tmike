@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Michael Curry (@l33tmike pronounced leet-mike)
+- 👀 I’m interested in making electronics do my bidding
+- 📫 You can also find me on various social media @l33tmike
